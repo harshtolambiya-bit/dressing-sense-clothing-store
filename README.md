@@ -1,1 +1,0 @@
-# dressing-sense-clothing-store
